@@ -41,3 +41,9 @@ https://pokemondb.net/pokedex/sableye
 ![fam8](https://github.com/user-attachments/assets/72402b3c-3836-47fc-b64a-2f0ef6178d7e)
 
 https://pokemondb.net/artwork/salamence
+
+## Number Eight: Brotherhood of Barbarians
+
+![fam9](https://github.com/user-attachments/assets/c92cc3ec-181c-47d5-9be2-25c618bcdee6)
+
+https://pokemondb.net/artwork/primeape
