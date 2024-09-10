@@ -35,3 +35,9 @@ https://nintendo.fandom.com/wiki/Slakoth
 ![fam7](https://github.com/user-attachments/assets/a0422651-fa3d-4ad3-85b9-109f7f528b6b)
 
 https://pokemondb.net/pokedex/sableye
+
+## Number Seven: Impostor Family, Dragon Society & Company
+
+![fam8](https://github.com/user-attachments/assets/72402b3c-3836-47fc-b64a-2f0ef6178d7e)
+
+https://pokemondb.net/artwork/salamence
