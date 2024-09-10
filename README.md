@@ -29,3 +29,9 @@ http://nintendo.wikia.com/wiki/Machoke
 ![fam6](https://github.com/user-attachments/assets/3a2e01b7-4f9c-4dc7-8b55-fb4b67673f2b)
 
 https://nintendo.fandom.com/wiki/Slakoth
+
+## Number Six: My Best Friend
+
+![fam7](https://github.com/user-attachments/assets/a0422651-fa3d-4ad3-85b9-109f7f528b6b)
+
+https://pokemondb.net/pokedex/sableye
