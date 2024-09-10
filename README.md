@@ -54,3 +54,8 @@ https://pokemondb.net/artwork/primeape
 
 https://www.pokemonpets.com/Shiny-Linoone-Pokemon-Pokedex-2264
 
+## Number Ten: The Dead
+
+![fam11](https://github.com/user-attachments/assets/cdf44f63-ce67-4b8e-9495-f96a22f49df7)
+
+https://www.deviantart.com/onixtymime/art/356-Dusclops-532611252
