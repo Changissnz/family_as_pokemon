@@ -36,7 +36,7 @@ https://nintendo.fandom.com/wiki/Slakoth
 
 https://pokemondb.net/pokedex/sableye
 
-## Number Seven: Impostor Family, Dragon Society & Company
+## Number Seven: Impostor Family of Dragon Society & Company
 
 ![fam8](https://github.com/user-attachments/assets/72402b3c-3836-47fc-b64a-2f0ef6178d7e)
 
