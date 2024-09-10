@@ -47,3 +47,10 @@ https://pokemondb.net/artwork/salamence
 ![fam9](https://github.com/user-attachments/assets/c92cc3ec-181c-47d5-9be2-25c618bcdee6)
 
 https://pokemondb.net/artwork/primeape
+
+## Number Nine: Criminal-Police Networks
+
+![fam10](https://github.com/user-attachments/assets/dee088e9-bdb6-439f-935c-f0c2db420560)
+
+https://www.pokemonpets.com/Shiny-Linoone-Pokemon-Pokedex-2264
+
